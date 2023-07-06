@@ -3,5 +3,5 @@
 + 🌱 2020-2024: Computer Science at University of Science, VNU-HCM
 + 📫 How to reach me: lnqminh3003@gmail.com
 
-⚡ Fun fact: I types things for my life
+⚡ Fun fact: I type things for my life
 
