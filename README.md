@@ -11,7 +11,7 @@
 
 ### I type things for my life
 
-<img src="https://github.com/lnqminh3003/lnqminh3003/assets/101281380/94007927-a51d-4261-ac76-0652126157f5" width="928/1.7" height="522/1.7">
+<img src="https://github.com/lnqminh3003/lnqminh3003/assets/101281380/94007927-a51d-4261-ac76-0652126157f5" width="620" height="348">
 
 
 
