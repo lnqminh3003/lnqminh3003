@@ -10,7 +10,7 @@ I am a problem solver and I type things for my life.
 
 - 2020-2024: Bachelor’s Degree in Computer Science at University of Science, VNU-HCM.
 
-- 2025-2027: Master's Degree in University of Calgary, Canada
+- 2025-2027: Master's Degree in Software Engineering and Security at University of Calgary, Canada
 
 
 
