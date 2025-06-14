@@ -2,7 +2,7 @@
 
 I am a problem solver and I type things for my life.
 
-For more information about me, please take a look at my [portfolio](https://minh-le.vercel.app)**.
+For more information about me, please take a look at my [portfolio](https://minh-le.vercel.app).
 
 #### My education:
 
